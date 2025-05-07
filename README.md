@@ -42,23 +42,3 @@ DEV Community
 🎵 Currently Listening
 
 
-
-📫 Connect with Me
-
-
-YouTube
-+1
-Reddit
-+1
-GitHub
-+13
-GitHub
-+13
-yushi95.medium.com
-+13
-GitHub
-+5
-YouTube
-+5
-Wikipedia
-+5
